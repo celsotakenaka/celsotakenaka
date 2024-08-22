@@ -12,4 +12,6 @@ _celso.takenaka@gmail.com_
 
 _@celsotakenaka_
 
-![](https://media1.tenor.com/m/jJr0cRvWu0UAAAAC/pong-videogame.gif)
+![](https://media1.tenor.com/m/jJr0cRvWu0UAAAAC/pong-videogame.gif) 
+
+![](https://cdn3.gnarususercontent.com.br/3472-logica-programacao/aula02-facacomoeufiz-gif6.gif)
