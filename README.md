@@ -12,4 +12,4 @@ _celso.takenaka@gmail.com_
 
 _@celsotakenaka_
 
-![](https://tenor.com/pt-BR/view/vintage-80s-playing-games-classic-video-game-gif-17186746)
+![](https://media1.tenor.com/m/jJr0cRvWu0UAAAAC/pong-videogame.gif)
